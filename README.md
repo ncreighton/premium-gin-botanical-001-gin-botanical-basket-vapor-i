@@ -1,0 +1,2 @@
+# premium-gin-botanical-001-gin-botanical-basket-vapor-i
+Tired of losing track of which botanical basket created that perfect gin? Stop guessing and start mastering your vapor infusions with a dedicated system that logs every experiment.  This Notion template solves the chaos of managing multiple botanical combinations, infusion times, and vapor setups. It's the only hub that integrates basket planning w
